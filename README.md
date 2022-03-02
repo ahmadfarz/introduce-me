@@ -1,2 +1,0 @@
-# introduce-me
-WS - Ruangguru
